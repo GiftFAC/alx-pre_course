@@ -1,1 +1,1 @@
-my lecturer readme updated
+my lecturer readme update
